@@ -32,19 +32,26 @@ This could include a summary of completed tasks, ongoing work, and any challenge
 **KIET MENTORS for Third Year:**
 
 Sarika (4th year)
+
 Sri Lasya (4th year)
+
 Swetha (4th year)
+
 Sunitha (4th year)
 
 **KIET MENTORS for Second Year:**
 
 Prasanna (4th year) 
+
 Chnadini (4th year)
+
 Harshini (4th year)
 
 **IIIT - Mentors:**
 
 Usha Sri Mogadali
+
 Meghana Tatavolu
+
 Durga Bhavani Gunnam
 
